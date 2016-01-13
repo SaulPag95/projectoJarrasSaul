@@ -1,1 +1,1 @@
-# Este proyecto est† realizado por Sa£l Pagador Pizarro 
+# Este proyecto este realizado por Sa√∫l Pagador Pizarro 
